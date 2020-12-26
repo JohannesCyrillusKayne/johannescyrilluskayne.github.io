@@ -1,2 +1,0 @@
-# johannescyrilluskayne.github.io
-Website
